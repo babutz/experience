@@ -1,2 +1,2 @@
-# Attention!
-My experiments
+# Attention! My Friends!
+Мои небольшие эксперименты и исследования
